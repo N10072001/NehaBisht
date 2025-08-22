@@ -29,5 +29,5 @@ Here are some of my highlighted projects:
 
 ## 📫 Connect with Me
 - 📧 Email: bishtneha9193@gmail.com  
-- 💼 LinkedIn: [linkedin.com/in/yourusername](#)  
+- 💼 LinkedIn: [linkedin.com/in/Neha Bisht](https://www.linkedin.com/in/neha-bisht-5080b1306/)  
 - 🌍 Portfolio: [your-portfolio-link](#)
